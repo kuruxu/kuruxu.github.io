@@ -1,1 +1,0 @@
-# kuruxu.github.io
